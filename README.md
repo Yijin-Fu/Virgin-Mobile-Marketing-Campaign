@@ -9,7 +9,7 @@ Virgin Mobile has recently unveiled ambitious plans to aggressively target the b
 # Methodology 
 - Define Objectives: Before entering the market, it's crucial to determine what results we want to achieve. To set up both short term and long term goals allow the company to design strategies accordingly and track KPIs more clearly.
 
-- Market Analysis: As virgin mobile wants to breakthrough the youth segment market in the America, getting to know about the consumption patterns and characteristics of young generations becomes the first step of the entire market research. Virgin mobile is able to tailor its price strategy and features accordingly to the traits.
+- Market Analysis: As virgin mobile wants to breakthrough the youth segment market in the America, getting to know about the consumption patterns and characteristics of young generations becomes the first step of the entire market research. Virgin mobile is able to tailor its price strategy and features accordingly to the traits.
 
 Competitive Analysis: 
 
