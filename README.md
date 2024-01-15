@@ -1,4 +1,5 @@
-# Virgin-Mobile
+# Virgin-Mobile![Virgin_Plus_logo svg](https://github.com/Yijin-Fu/Virgin-Mobile/assets/73370048/f8ea3069-3c35-4953-bf60-577fed180660)
+
 Virgin Mobile Marketing Strategy to Expand Youth Customer Base in North America
 
 # Introduction 
